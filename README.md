@@ -25,6 +25,10 @@ possible by sim dupl and/or own transmitter near my home
 ##### telegram
 by hacking app or by men-in-the-middle
 ## forced therapy
+## use of restricted therapy methods
+## stealing
+items from apt.
+# murder attempt
 
 # stages
 Band told that their actions began:
