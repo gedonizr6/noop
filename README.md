@@ -29,6 +29,14 @@ by hacking app or by men-in-the-middle
 ## stealing
 items from apt.
 # murder attempt
+# multiple attempts to coerce for:
+## human-traffic(to sell your girlfreiends)
+## distributing illigal drugs
+## watch porn and do sex(and rape) with
+### man
+### transman
+### underages
+
 
 # stages
 Band told that their actions began:
