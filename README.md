@@ -300,3 +300,17 @@ Also they have been saying that they has some sub-groups, and when phase
 ### air cond in bedroom
 #### was warned 1 day before by role techie
 ### air cond in living room(twice)
+
+# "Sex game" rules
+members: 
+- players males
+- players females
+- voice actors
+all players:
+- connected to voice actors network
+- has own voice actors
+- can somehow manipulated by voice actors
+- 
+voice actors:
+- intended to help the player they assigned to
+- 
