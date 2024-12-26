@@ -1,6 +1,8 @@
 ## i didn't give my consents to participate in any trials/therapy/game/show/etc
 ## i think some group of people trying to make me believe that im mad.
-## i hear voices constantly after ~feb 2024. they almost never quiet
+## i hear voices constantly after ~feb 2024. they almost never quiet.
+Possibly they use hired actors and transmit digital or analog audio data through radio waves
+
 ## their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it orgabunized and controlled by ## some third-party group(the band)
 Supposedly they are trying to discredit me - publicly or in front of some group of people 
 They somehow controll people behaviour, making them act in the same odd maner with common goals. Possible methods:
@@ -25,6 +27,18 @@ possible by sim dupl and/or own transmitter near my home
 ##### telegram
 by hacking app or by men-in-the-middle
 ## forced therapy
+## use of restricted therapy methods
+## stealing
+items from apt.
+# murder attempt
+# multiple attempts to coerce for:
+## human-traffic(to sell your girlfreiends)
+## distributing illigal drugs
+## watch porn and do sex(and rape) with
+### man
+### transman
+### underages
+
 
 # stages
 Band told that their actions began:
@@ -439,3 +453,17 @@ Also they have been saying that they has some sub-groups, and when phase
 ### air cond in bedroom
 #### was warned 1 day before by role techie
 ### air cond in living room(twice)
+
+# "Sex game" rules
+members: 
+- players males
+- players females
+- voice actors
+all players:
+- connected to voice actors network
+- has own voice actors
+- can somehow manipulated by voice actors
+- 
+voice actors:
+- intended to help the player they assigned to
+- 
