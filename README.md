@@ -30,7 +30,7 @@ by hacking app or by men-in-the-middle
 Band told that their actions began:
 - from the birth(like im in vr or they are born with me)
 - when i moved to Kyiv (like they are my employer or some organization)
-- from my first meeting with DN
+- from my firnnast meeting with DN
 - from my first meeting with GK
 - from my second meeting with GK(after DN moved)
   - the most strangiest dates started from here as i remember
