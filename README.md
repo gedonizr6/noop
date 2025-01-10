@@ -4,13 +4,13 @@
 Possibly they use hired actors and transmit digital or analog audio data through radio waves
 
 ## their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it orgabunized and controlled by ## some third-party group(the band)
-Supposedly they are trying to discredit me - publicly or in front of some group of people 
+Supposedly they are trying to discredit me - publicly or in front of some group of people
 They somehow controll people behaviour, making them act in the same odd maner with common goals. Possible methods:
 - open suggestion
 - hidden suggestion
   - using special devices
   - using psychology skills
-- bribes(police, personal contacts, escort) 
+- bribes(police, personal contacts, escort)
 - administrative resource
 - reward(for actors)
 
@@ -49,7 +49,7 @@ Band told that their actions began:
 - from my second meeting with GK(after DN moved)
   - the most strangiest dates started from here as i remember
 - from my meeting with LK
-Maybe this stage wasn't controlled, or controlled slightly, or just monitored, or was completely unobserved(natural) 
+Maybe this stage wasn't controlled, or controlled slightly, or just monitored, or was completely unobserved(natural)
 ## revealed as hallutinations
 I started to hear neighbors. The first time as i remember: i heared man's voice from the power socket behind pc. The voice said something like "hey, who are there?"
 Somwhere in this stage or slighty before i started to feel fear of disturbing nighbors by making to load noises(paranoia)
@@ -59,14 +59,14 @@ This paranoia could heve been:
 ## revealed as external real third-party group
 From there the Griup started to dialogs with me (there's a chance that i forget some dialgs before this stage)
 i have sparse memories about start of this period, like some days was completely or partialy erased(the Group said that they did that and i feel this is true, but possible they just covered my forgetfulless)
-Some of episoeds i rememberd 
+Some of episoeds i rememberd
 - teaching me tecniques of speaking and hearing the Group
 - the trial with me as a rapist of two 14yo girls
 -  i was in coma
 ### DP with some games
 #### episode at pc with audacity and headphones
 they induced me Arrogant state. Probably for teaching/testing/content.
-#### episode in a bathroom 
+#### episode in a bathroom
 a doctor asked me to watch in the eyes and then tryied to or pretend to erase my memories of last events which i didn't remember right now. they used context switching method and used absurd phrases at the end of sentences
 ### Phases
 Where the group changed the their strategies:wi
@@ -133,34 +133,38 @@ Also they have been saying that they has some sub-groups, and when phase
 # Tactics/methods of the Group
 - consistently varying the term's meanings
   - examples
-    - multiple   
+    - multiple
       - yonk - girlfriend, girlfriend from the past, ,  my children, anyone's children, male friend, female freind, KY
       - porno - watching porn, recording porn, acting for porn, doing sex, watching soccer, take garbage from the streets
       - rape - doing sex, virtual  rape, real rape, ritual rape
 - invert sentence's meanings
   - everyone - nobody
   - ambigous not
-- 
+-
 - threatening/intimidating
   - examples:
     - that they or someone going to rape or raping me, my mother, wife, girls i know
     - someone (often RD) going to fight with me/kill me
     - that im dead with 4 knife cuts
     - cut my ball(s)
-    - doing vasectomy 
+    - doing vasectomy
 - change of blood pressure
   - external origin: intensity varies depending of events. e.g. increasing before watching pornography and when you verbally disagree with one of the Group
 - somehow initiate and controll visual imagination
 - hacking
   - internet phishing
+    - telegram MITM
+    - DNS
+    - monobank
   - remote control devices
     - input (mice, touchscrens, keyboards)
     - storage (hdd, ssd)
       - fs
-      - noises(diverse of rhytmic noise) 
+      - noises(diverse of rhytmic noise)
   - app's manipulation
-  - 
+  -
 - [Coding](https://en.wikipedia.org/wiki/Coding_(therapy))
+- [Aversion therapy](https://en.wikipedia.org/wiki/Aversion_therapy)
 - takes responsibility when you did something better, and blames you when you make mistakes
   - often with choir of laughter
 - They often criticize you when you do something
@@ -172,6 +176,46 @@ Also they have been saying that they has some sub-groups, and when phase
   - sometimes using direct insults with innapropriate languagev
 - active hidding of real goals
   - regular changes of tactics with seemingly contradictory goals
+- concealing interrogation(hypnosis?)
+  - they know and use every significant event of your life starting from childhood
+- use actors
+  - sex workers
+  - police officers
+  - homos
+  - taxi drivers
+  - voice actors
+  - common people
+  - shop staff
+    - atb
+    - silpo
+    - citrus
+- prvoke to do crimes
+  - buy or use drugs
+  - use violence
+    - to guests
+    - to rivals(phantom)
+- use voice/text/(maybe video) wireless communication network
+- inducing directed visual hallutination with intended narratives
+- consistently harm your self-esteem
+- deprive of sleep
+- prompt thughts, actions and phrases
+  - by heared voice
+  - by created habbit or
+- see through your eyes
+  - by text of video ?
+- hide track by adding more and more descriptions of Group origins and actions
+- trying to exaust or even kill you by provoke repeating potential harmful physical activity
+- replicate symptoms of schizophrenia trying make eveyone incl you belive you have it
+- aimed at addicted
+- don't listen your desire to left the project
+- repeat scenarios for
+  - preparation
+  - redo failed
+- memory wipenig
+- induce feelig of persistence of audience
+  - tv/internet show
+  - crew
+-
 ### дискредитировать перед обществом и/или закодировать от соц контактов
 #### перед знакомыми, к которым мог бы обратиться
 #### возможно публиично
@@ -223,12 +267,13 @@ Also they have been saying that they has some sub-groups, and when phase
 ### наделать детей и получать профит
 ### попытка сделать из меня насильника или педофила, возможно, приняв в Банду
 ## To harm
-- desocialize you
-### остаться без денег
-### без близких
-### попытаться наделать детей и получить ответку
-### попытка сделать из меня насильника или педофила, вероятно с последующим наказанием(законно или нет - хз)
-### попытка сделать
+- to leave ukraine
+  - desocialize you
+  ### остаться без денег
+  ### без близких
+  ### попытаться наделать детей и получить ответку
+  ### попытка сделать из меня насильника или педофила, вероятно с последующим наказанием(законно или нет - хз)
+  ### попытка сделать
  либо заставить меня в это поверить, чтобы я наделал глупостей, разочаровался в себе, испортил поведенчиские и когнитивными паттерны
 ## за помочь:
 ### полностью контролировали мои девайсы, связь и имели возожность каким-то образом распозновать мои мысли
@@ -455,7 +500,7 @@ Also they have been saying that they has some sub-groups, and when phase
 ### air cond in living room(twice)
 
 # "Sex game" rules
-members: 
+members:
 - players males
 - players females
 - voice actors
@@ -463,7 +508,26 @@ all players:
 - connected to voice actors network
 - has own voice actors
 - can somehow manipulated by voice actors
-- 
+-
 voice actors:
 - intended to help the player they assigned to
-- 
+-
+
+
+# 
+Насильно кодируют от возбуждения на женщин и порно с женщинами
+Включают возбуждение когда в кадре появляется мужской половой орган
+
+# Портрет подозреваемых
+- Группа, обладающая top-grade resources and methods:
+-- spying(IT and in-person)
+-- acting
+-- psychology
+-- network of agents, who or can act as
+--- sex-workers
+--- homeless
+--- shop-workers
+--- delivery services
+--- neighbor
+--- pedestrian
+--- driver(incl taxi or only taxi)
