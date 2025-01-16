@@ -132,7 +132,7 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
 ## Strategies
 - Concealed adjusting your habbits
 
-## Tactics/methods of the Group
+## Methds and Tactics of the Group
 - consistently varying the term's meanings
   - examples
     - multiple
@@ -142,7 +142,6 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
 - invert sentence's meanings
   - everyone - nobody
   - ambigous not
--
 - threatening/intimidating
   - examples:
     - that they or someone going to rape or raping me, my mother, wife, girls i know
@@ -150,9 +149,45 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
     - that im dead with 4 knife cuts
     - cut my ball(s)
     - doing vasectomy
-- change of blood pressure
-  - external origin: intensity varies depending of events. e.g. increasing before watching pornography and when you verbally disagree with one of the Group
+- Remote controll of the victim's physical/mental states
+  - changing of the body temperature
+  - changing of the blood pressure of entire body and/or selected body parts(e.g. head, pubic area)
+    - why external origin:
+      - never before
+      - the speed of changes
+      - intensity varies depending of specific context in the way that seems like benefits the Group (e.g. use recreational drugs)
+        - even before actions (e.g. increasing before watching porn to the point of expiriencing significant pain)
+  - inducing or reducinf erection
+  - turning the feeling of pain on or off
+    - head
+    - heartburn
+    - knees
+    - throat(cpying flu symptoms)
+  - muscles
+    - lips tremor (like when crying)
+    - hands tremor
+    - convulsions (often when you tring to sleep of just doing nothing - motivating to do something)
+  - sudden swaying to the side when walking
+    - generally as a punishment for thoughts
+    - sometimes near the automobile traffic
+  - inducing crying
+  - inducing anxiety
+- deprevation of sleep
+- provoking interpretation at the hallucinatory level of the group(remote and in-person) replics
+  - by intentionally
+    - lowering the voice volume  for selected segment of the replic
+    - speaking inarticulate
+- intercept the victim's thoughts and voicing them in other forms
+  - often more conventional
 - somehow initiate and controll visual imagination
+- comparsioning with another persons
+  - they are almost always better
+  - gradually worsening the examples
+- sometimes the Group is helping the victim
+  - for example they hints the points for this text
+    - or pretending to do so
+    - and in the smae time make you hurry
+      - which i don't know how to interpret(help or hinder)
 - hacking
   - internet phishing
     - telegram MITM
@@ -175,7 +210,8 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
     - often they supports laughter with vibrations like they "rolling on the floor" laughing
   - Often they caughts real mistakes suggest you impression of their  superiority, but occasionally their laughs seems totally absurds
   - When you leran something new and correct yourself
-  - sometimes using direct insults with innapropriate languagev
+  - sometimes using direct insults with innapropriate language
+  - sometimes after some of your thoughts. especially when i undoubted about it
 - active hidding of real goals
   - regular changes of tactics with seemingly contradictory goals
 - concealing interrogation(hypnosis?)
@@ -199,7 +235,7 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
 - use voice/text/(maybe video) wireless communication network
 - inducing directed visual hallutination with intended narratives
 - consistently harm your self-esteem
-- deprive of sleep
+- consistently deprive of sleep
 - prompt thughts, actions and phrases
   - by heared voice
   - by created habbit or
@@ -217,7 +253,18 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
 - induce feelig of persistence of audience
   - tv/internet show
   - crew
--
+- sometimes  laugh after any my action and/or thought
+- read your thoughts
+  - somehow. possible by
+    - analyzing brain or muscle activity(eg. by changes of em field)
+  - or make an illusion of reading by concealed prompting the thoughts
+- suggest that thera are some periods when they upload ito your mind the instruction for the next day(s)
+- Consistenty force you to became gay or transgender
+  - lowering libido
+  - inducing ED
+  - saying that the problem with the size of your penis
+  - saying that noone girl can't get sexually satisfied with you
+- inclining to do circumsicion
 #### дискредитировать перед обществом и/или закодировать от соц контактов
 ##### перед знакомыми, к которым мог бы обратиться
 ##### возможно публиично
@@ -248,7 +295,7 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
 #### внушали мне, что я в коме
 #### регулярно упоминали что-то вроде "игнат, ты мертвый лежишь на полу с четырьмя ножевыми ранениями"
 ### наведение обонятельных галлюцинаций
-на начальных этапах. потом перестали
+на начальных этапах. потом перестали. then on the autumn start again
 ### звуковые галлюцинации
 #### голоса из далека
 #### тихие голоса как из наушника
@@ -256,7 +303,7 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
 ##### душ
 ##### фен
 ##### выплевывание тенисного мячика в игре Tenis в Quest2
-голос МЯ. слова: пушкин, кушай
+Voice of MY. слова: пушкин, кушай(и так без перерыва всю игру. likely to force to stop playing or/and to provoke annoyance)
 
 ## Possible goals
 ### To help
@@ -509,13 +556,17 @@ members:
 all players:
 - connected to voice actors network
 - has own voice actors
-- can somehow manipulated by voice actors
--
+- can somehow manipulated by voice actors or be the actors themeselves
+females players:
+- choose the partner
 voice actors:
 - intended to help the player they assigned to
 -
 
 
+## Sex game(Mephedrone games as they saying)
+
+(
 ##
 Насильно кодируют от возбуждения на женщин и порно с женщинами
 Включают возбуждение когда в кадре появляется мужской половой орган
