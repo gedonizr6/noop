@@ -1,0 +1,7 @@
+- there are signs of some Augemented Reality build within the brain using visual imagenation or somehow stimulating the receptors or have some hidden device(like eyelens or glasses) or by somehow projecting the image on the retina.
+- the victim may have disabled gui
+- the gui may be not working properly for the person with lack of visual imagenary
+- controlled by:
+ - voice commands
+ - eye movements
+ - mental focus

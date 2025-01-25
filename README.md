@@ -35,7 +35,7 @@ items from apt.
 ## multiple attempts to coerce for:
 ### human-traffic(to sell your girlfreiends)
 ### distributing illigal drugs
-### watch porn and do sex(and rape) with
+### watch adult videos and do sex(and rape) with
 #### man
 #### transman
 #### underages
@@ -78,6 +78,7 @@ Where the group changed the their strategies:wi
 - neutral
 Also they have been saying that they has some sub-groups, and when phase
 #### Game "Life"
+
 
 ## Voices
 ### Roles(names is in github secrets)
@@ -177,9 +178,17 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
   - by intentionally
     - lowering the voice volume  for selected segment of the replic
     - speaking inarticulate
-- intercept the victim's thoughts and voicing them in other forms
+- intercept the victim's thoughts and voicing them in other forms(Repeating)
   - often more conventional
+  - presumably to reinforce the thought
+   - often as an imperative
+   - incl. fears and other bad thoughtsds and ideas
 - somehow initiate and controll visual imagination
+ - the victim may see animated images when eyes closed
+   - very vague
+   - two-color
+   - as they say the other people can visualize in better quality
+ - the victim may see  
 - comparsioning with another persons
   - they are almost always better
   - gradually worsening the examples
@@ -258,13 +267,17 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
   - somehow. possible by
     - analyzing brain or muscle activity(eg. by changes of em field)
   - or make an illusion of reading by concealed prompting the thoughts
-- suggest that thera are some periods when they upload ito your mind the instruction for the next day(s)
+- suggest that there are some periods when they upload ito your mind the instruction for the next day(s)
 - Consistenty force you to became gay or transgender
   - lowering libido
   - inducing ED
   - saying that the problem with the size of your penis
   - saying that noone girl can't get sexually satisfied with you
 - inclining to do circumsicion
+- ventilocruism
+- satire/hummor/exagaration
+
+
 #### дискредитировать перед обществом и/или закодировать от соц контактов
 ##### перед знакомыми, к которым мог бы обратиться
 ##### возможно публиично
@@ -557,11 +570,13 @@ all players:
 - connected to voice actors network
 - has own voice actors
 - can somehow manipulated by voice actors or be the actors themeselves
+- not allowed to physically harm and steal money
+- allowed to do any other harm, but not critical
 females players:
 - choose the partner
 voice actors:
 - intended to help the player they assigned to
--
+-- by harming other players
 
 
 ## Sex game(Mephedrone games as they saying)

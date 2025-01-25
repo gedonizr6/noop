@@ -1,0 +1,7 @@
+- sounds heared like they are running from the some point in space
+ - e.g. voices sounds like they runs from the invisible person. or screams from some far height(when in the city).
+ - the heared better when you came closer
+ - the victim may have intendently worsen setup(e.g. low volume of voices)
+ - the victim may have disabled controlls of the system.
+ - there are signs of voice controll commands enabled for the members of the Group
+ - there are signs of some GUI incorprated with voice-control
