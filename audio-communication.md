@@ -5,3 +5,8 @@
  - the victim may have disabled controlls of the system.
  - there are signs of voice controll commands enabled for the members of the Group
  - there are signs of some GUI incorprated with voice-control
+# tinnitus
+- the victim may expierences tinnitus
+ - sometimes or always and sometimes more noticetable
+ - seems like the focusing on  this ringing sound leads to increasing the volume of this sound
+   - 

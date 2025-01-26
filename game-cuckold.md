@@ -1,0 +1,5 @@
+- the players should have their upload ed adult movies so that other players could wathc them
+- when player1 watch player2's content then
+  - the period when player1 has no errection leads to some penalty to  player2
+  - if player1 ejaculated then player1 will meet the actors from this content
+  - someone(ai, master(s), other players, actors) may controll player1 errection level and ability to get ejaculation
