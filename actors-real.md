@@ -1,0 +1,20 @@
+- hes network of dopelgainers and/or real celebrities
+  - examples
+    - brezhneva
+      - don't know who she is, but the group adviced to mention it in the time of writting
+    - prigozhin
+      - as a taxi driver
+      - as a night walker
+    - bari alibasov
+      - as a taxi driver
+    - gordon
+      - as a day walker
+    - myself
+      - at the beginning of 2024
+      - walked under my balcony
+- professions:
+  - sex workers
+  - taxi drivers
+  - shopping workers
+  - homeless
+  - drugdealerss~

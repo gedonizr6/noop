@@ -1,0 +1,23 @@
+- works 24/7. so suppopsedly has several interchanchble brigades
+  - possible works remotely in differenrt time zones
+- possible partly emulateds
+- roles:
+  - sbu
+  - stundup comedians
+  - football players
+    - now or in the past
+    - from
+      - zenit
+      - dynamo kyiv
+      - rpl
+  - tv show hosts
+  - depositphotos
+  - depositfiles
+  - hired actors
+  - shpuntics
+  - males
+  - females
+  - team players
+  - opposit players
+  - personal
+    -
