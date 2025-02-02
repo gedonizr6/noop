@@ -1,12 +1,24 @@
 # versions
 ## what
 - therapy
+- training
+- punishment
+- help
+- realty show
+- contest
+- qualification
+- vacation
+- gift
+- social programm
+## Sanctioned
+- Ukrainian gvn
+## Funded
+- Gov
+- Non-profit
+- Private
 ## the head(SRN)
-- DP
-- SBU
-- Police
-- Ukrainian goverment
-- Ukrainian army
+- some top
+  - Sergeev
 - Some cyber warfare dpt
   - in ukraine or allies
 - some anon  cyber criminals
