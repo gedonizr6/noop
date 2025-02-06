@@ -26,3 +26,23 @@
     - you should do it with your wife.
       - someony(Drogolov) done that, and she was happy. you should done it
   - when they saw that i didn't do any crimes - they starts to call me weak.
+- intentional poisoning
+  - what
+    - brome
+    - opioides
+    - "female" hormons
+    - testosterone
+    - papaverine
+    - dimedrol
+    - apvp
+    - mephrdrone
+    - mixing other drugs
+      - both legal and not
+  - how
+    - by selling substutued or midified drugs
+    - by intercepting package/stash
+    - by adding to food and drinks
+      - by neighbors
+      - by guests(girls)
+- breaking and entering the home
+- steaking items in the home
