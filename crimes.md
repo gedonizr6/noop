@@ -20,3 +20,9 @@
 - harm self-esteem
   - by mockering on the victim
   - by non-stopping critics
+- provoking to do crimes
+  - trying to make me believe that giveing drugs to girls without they noticed  - is good, and normal
+    - everybody do that. therefore you lose
+    - you should do it with your wife.
+      - someony(Drogolov) done that, and she was happy. you should done it
+  - when they saw that i didn't do any crimes - they starts to call me weak.

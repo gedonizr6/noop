@@ -1,0 +1,24 @@
+- some persons volonteured to help
+  - with:
+    - self-esteem
+    - adiction of
+      - porn
+      - sex
+    - sex
+    - childs
+    - personal life
+  - who:
+    - football players or their daughters
+    - friends of rich ppl
+    - celebrities
+    - relatives
+    - coworkers
+- you accidentely came into some game of rich ppl
+- you live in conspiracy home and should leave
+  - some rich ppl from RUS was liveing here and
+    - add you to the game
+    - create a game for you
+  - for
+    - fun
+    - as victim/goat/moneybag for other player
+-
