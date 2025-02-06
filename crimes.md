@@ -1,0 +1,22 @@
+- harm to health by regular supressing symptoms
+  - prob: high
+  - symptoms:
+    - body temp
+    - pressure
+    - pain
+    -
+- develop the habbit to danger health signals
+  - signals:
+    - pain in hearth
+    - heartburn
+    - headache
+    - sleepiness
+    - feel of high pressure
+    - pain in throath
+    - dizzenes
+    - lowering presure
+- provoking affective state
+- systematically sabotage almost any actions
+- harm self-esteem
+  - by mockering on the victim
+  - by non-stopping critics
