@@ -1,8 +1,20 @@
 ### Some group is systematically harassing me for several years
 ### i didn't give my consents to participate in any trials/therapy/game/show/etc
-### i think some group of people trying to make me believe that im mad.
-### i hear voices constantly after ~feb 2024. they almost never quiet.
-Possibly they use hired actors and somehow transmit audio data to my mind
+### i think they trying to make mad or make me believe in that
+### they can directly interfere with the brain from the distace
+They revealed themselves ~feb 2024. They almost never quiet.
+They stands out by:
+- cyber security dep with hi-end tech and skills
+- voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills
+- sex-workers(escort)
+- doppelganger (incl. celebrities/politican etc)
+- **actors/agents/cotrolled persons/part-time staff** playing 
+  - police officers
+  - escort woman
+  - ambulance crew
+  - ordinary people
+  - shop workers
+  - homeless
 
 ### their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it orgabunized and controlled by ## some third-party group(the band)
 Supposedly they are trying to discredit me - publicly or in front of some group of people
