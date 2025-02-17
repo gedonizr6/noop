@@ -19,7 +19,9 @@
     - celebrities
     - relatives
     - coworkers
-- you accidentely came into some game of rich ppl
+    - politicans
+    - govrnooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooonnn
+- you accidentely came into some game for rich ppl
 - you live in conspiracy home and should leave
   - some rich ppl from RUS was liveing here and
     - add you to the game
@@ -27,4 +29,5 @@
   - for
     - fun
     - as victim/goat/moneybag for other player
--
+- you have been choosen for someone in datinh/mariage game
+  
