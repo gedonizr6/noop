@@ -30,7 +30,7 @@
   - what
     - brome
     - opioides
-    - "female" hormons
+    - "female" hormones
     - testosterone
     - papaverine
     - dimedrol
