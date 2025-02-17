@@ -1,3 +1,9 @@
+# working
+- some group of rich people was spying on me
+  - at first passively
+  - then actively unnoticablel
+    - by emulating the work of subconcious
+  - then actively relieved themselves as voices
 - some persons volonteured to help
   - with:
     - self-esteem
