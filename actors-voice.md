@@ -2,22 +2,81 @@
   - possible works remotely in differenrt time zones
 - possible partly emulateds
 - roles:
-  - sbu
+  - "SBU"
+    - some security agecy or agenicies in the Ukrainian goverment
+    - Soron-sbu
+      - brother of Soron-dp
   - stundup comedians
+    - Reva
   - football players
     - now or in the past
+     mentioned in 2025
     - from
       - zenit
+        - often thsn other
+        - who
+          - R Shirokov
+          - M Vieshtica
+          - V Radimov
+          - K Zyranov
+          - A Panov        
       - dynamo kyiv
       - rpl
   - tv show hosts
+    - Kate-Yonka-Stepka
   - depositphotos
-  - depositfiles
+    - Titov
+    - Osipyanets
+    - S Maspanov
+    - Lux
+    - I Kalyuzhni
+    - V Nekhai
+    - Sapata
+    - Kozorez
+    - Luda Budda
+    - Max Yarchevski
+    - Soron 
+    - Lenka
+    - Mamay
+  - vista
+  - depositfiles new owners
+  - - spying after they lost money because of hacker MY
+      - allegedly MY was in this programm
   - hired actors
-  - shpuntics
+  - shpunt
   - males
   - females
+  - players females
+    - N Datsenko
+    - Katka-Yonka-Stepka
+    - Liza Solovar
+    - Polina Solovar
+    - Polina Solovar-sex-worker
+  - porn actors
+    - Polina Solovar-sex-worker
+    - Polina Solovar-sex-worker's husband
+  - player's parents
+    - A Arshvin
+    - A Dunin
+    - M Kozinov
+    - A Batuev
+    - A Panov
+    - V Radimov
+    - Malafeev
+    - Nekhai
+    - Soron
+    - M Yarchevski
   - team players
   - opposit players
-  - personal
-    -
+    - "Drogolov"
+    - "Max"
+  - Politics
+   - Zelensky
+   - Klichko bros
+   - R Abramovich
+ - 
+  - friends from spb
+    - Andrew Dunin
+    - Shunya
+    - R Golovunin
+    - 
