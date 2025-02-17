@@ -66,6 +66,7 @@
     - Nekhai
     - Soron
     - M Yarchevski
+    - Zoya
   - team players
   - opposit players
     - "Drogolov"
@@ -79,4 +80,6 @@
     - Andrew Dunin
     - Shunya
     - R Golovunin
-    - 
+  - parents friends
+    - Liubimsky
+    
