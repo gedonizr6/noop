@@ -1,4 +1,18 @@
-- harm to health by regular supressing symptoms
+- Abuse of authority
+- harrassment
+- bullying
+- Illigal Procuring(sex workers)
+- Illigal drug distribution
+- harm to personal life
+- harm to sexual life
+- censorship 
+- Provoking to buy drugs
+- wiretapping
+- device hacking
+- forced conceald therapy
+- illigal therapy methods
+- Spying / Stalking
+- regularly supressing symptoms that may harm to health
   - prob: high
   - symptoms:
     - body temp
@@ -16,6 +30,7 @@
     - dizzenes
     - lowering presure
 - provoking affective state
+  - aggression
 - systematically sabotage almost any actions
 - harm self-esteem
   - by mockering on the victim
