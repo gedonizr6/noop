@@ -8,6 +8,10 @@
   - squatting
   - rape someone
   - watch or do sexual activity with childs
+  - suicide
+    - 3 failed attempts
+- concealed chemical and psychological castration
+- systematic friegtening
 - using mind-reading techniques w/o consent
 - privacy violance
 - harrassment
