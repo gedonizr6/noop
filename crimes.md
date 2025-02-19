@@ -1,4 +1,15 @@
 - Abuse of authority
+- prodution of pornogrphy
+- Incitement to
+  - drug distribution
+  - give someont drugs without their notice
+  - harm or kill someone
+  - steal
+  - squatting
+  - rape someone
+  - watch or do sexual activity with childs
+- using mind-reading techniques w/o consent
+- privacy violance
 - harrassment
 - bullying
 - Illigal Procuring(sex workers)
