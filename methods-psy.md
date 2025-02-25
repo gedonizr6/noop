@@ -1,3 +1,9 @@
+- emulate the work of subconscious
+ - including subconscious with some pathalogy
+  - e.g. mimic symptoms of schizophrenia
+ - control autonomic nervous system
+  - incl. states(body/mind) and feelings
+ - generating ideas, thoughts, phrases
 - changing context of something to change how percieve it in general
   - if you allow some action from one group of people then you should do that for any groups.
     - e.g. if you would forgieve relatives for mindful Sparticipation of this game for you - then this game is ok and you should be thankful

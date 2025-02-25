@@ -1,4 +1,10 @@
 - Abuse of authority
+- Suppress the willpower, creativity, initiative
+ - by beeig ahaed of them
+  - e.g. predicting the victim's thoughts/actions
+ - by taking all the credits for them
+  - "finally"
+  - "that was my idea" 
 - prodution of pornogrphy
 - Incitement to
   - drug distribution

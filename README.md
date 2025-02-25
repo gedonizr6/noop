@@ -1,7 +1,13 @@
-### Some group is systematically harassing me for several years
-### i didn't give my consents to participate in any trials/therapy/game/show/etc
-### i think they trying to make mad or make me believe in that
-### they can directly interfere with the brain from the distace
+Hello. I live in Kiev having Russian citizenship.
+And some group linked to Ukrainian government trying to control me at least from the start of the war.
+They know every episode of my life from the birth - including personal nobody else know
+Therefore I presume they use some 
+
+
+Some group is systematically harassing me for several years
+i didn't give my consents to participate in any trials/therapy/game/show/etc
+i think they trying to make mad or make me believe in that
+they can directly interfere with the brain from the distace
 They revealed themselves ~feb 2024. They almost never quiet.
 They stands out by:
 - cyber security dep with hi-end tech and skills
