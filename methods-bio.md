@@ -1,0 +1,3 @@
+- dynamically change body states
+ - possible the victim should take some drug to enable this method
+  - possible the Group add this drug in secret sellig drugs or food

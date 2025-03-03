@@ -7,3 +7,7 @@
 - changing context of something to change how percieve it in general
   - if you allow some action from one group of people then you should do that for any groups.
     - e.g. if you would forgieve relatives for mindful Sparticipation of this game for you - then this game is ok and you should be thankful
+- "fork"
+  - form the circumstanes in such a way that victim believe he has only one possible way
+  - often the victim feels like that was he who choose this way
+ 

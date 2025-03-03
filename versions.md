@@ -1,10 +1,12 @@
-# working
-- some group of rich people was spying on me
+# some group of rich people is playing with you for fun
   - at first passively
   - then actively unnoticablel
     - by emulating the work of subconcious
   - then actively relieved themselves as voices
-- some persons volonteured to help
+# Porn therapy
+- For men with testosterone defiency
+- Where you make own porn
+# some persons volonteured to help you
   - with:
     - self-esteem
     - adiction of
@@ -21,13 +23,13 @@
     - coworkers
     - politicans
     - govrnooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooonnn
-- you accidentely came into some game for rich ppl
-- you live in conspiracy home and should leave
+# you accidentely envolved into some game for rich ppl
+# you live in conspiracy house and someone want you to leave
   - some rich ppl from RUS was liveing here and
     - add you to the game
     - create a game for you
   - for
     - fun
     - as victim/goat/moneybag for other player
-- you have been choosen for someone in datinh/mariage game
-  
+# you have been choosen for someone in dating game
+# Someone use you for experiments

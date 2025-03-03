@@ -5,7 +5,9 @@
  - by taking all the credits for them
   - "finally"
   - "that was my idea" 
-- prodution of pornogrphy
+- pornography production and distribution
+- Sleep deprivation
+  - itentional & continuous
 - Incitement to
   - drug distribution
   - give someont drugs without their notice
@@ -40,8 +42,8 @@
     - pressure
     - pain
     -
-- develop the habbit to danger health signals
-  - signals:
+- develop the habbit to ignore potentially dangerous symptoms
+  - examples:
     - pain in hearth
     - heartburn
     - headache
