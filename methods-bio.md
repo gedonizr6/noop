@@ -1,3 +1,6 @@
 - dynamically change body states
+ - e.g.
+  - blood pressure and blood distribution over the body organs
+   - proof: sometimed when on the start of masturbation the penis became even smaller then without stimulation
  - possible the victim should take some drug to enable this method
   - possible the Group add this drug in secret sellig drugs or food

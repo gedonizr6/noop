@@ -6,6 +6,7 @@
   - "finally"
   - "that was my idea" 
 - pornography production and distribution
+ - computer generated for sure
 - Sleep deprivation
   - itentional & continuous
 - Incitement to
@@ -29,7 +30,7 @@
 - harm to personal life
 - harm to sexual life
 - censorship 
-- Provoking to buy drugs
+- Provoking to buy and do drugs
 - wiretapping
 - device hacking
 - forced conceald therapy
@@ -41,7 +42,6 @@
     - body temp
     - pressure
     - pain
-    -
 - develop the habbit to ignore potentially dangerous symptoms
   - examples:
     - pain in hearth
@@ -83,4 +83,5 @@
       - by neighbors
       - by guests(girls)
 - breaking and entering the home
-- steaking items in the home
+- stealing items in the home
+- attempt to make one clinicaly insane

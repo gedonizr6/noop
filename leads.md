@@ -6,3 +6,7 @@
   - saw photo liza+drogolov2
 - posledniy poceluy
 - ussr action movi's actor playing main hero is yonkin's father
+- euro vision 2024/2025
+ - someone said 2025 has Liza in dance
+- Snowden may had similar expirence
+
