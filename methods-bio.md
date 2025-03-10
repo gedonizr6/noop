@@ -4,3 +4,13 @@
    - proof: sometimed when on the start of masturbation the penis became even smaller then without stimulation
  - possible the victim should take some drug to enable this method
   - possible the Group add this drug in secret sellig drugs or food
+ - change brain's states
+  - e.g.
+   - intellect
+   - fear/bravery
+   - paranoia
+   - speakability
+   - sexual arousal
+   - anxious
+   - shyness
+   - inducing trans or similar hypno-states 			

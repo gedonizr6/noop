@@ -11,3 +11,12 @@
     - possible controlled over electrical power line by changeing frequency and/or modulation
       - which can read by common saund interface(possible)
     -
+- gaining the whole informtion about some or any persons
+ - even from another state(like Russia)
+ - e.g.
+  - knowing the victis's or his family friends/schoolmates/coed
+   - even them psychological and behavioral profile
+ - possible methods:
+  - OSI
+  - social engineering
+  - Authorised access to government records

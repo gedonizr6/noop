@@ -1,3 +1,4 @@
+# Methods that affect mental states
 - emulate the work of subconscious
  - including subconscious with some pathalogy
   - e.g. mimic symptoms of schizophrenia
@@ -10,4 +11,13 @@
 - "fork"
   - form the circumstanes in such a way that victim believe he has only one possible way
   - often the victim feels like that was he who choose this way
- 
+- playing background sounds
+ - e.g. often music
+ - e.g. ambient
+ - e.g. often heavy and melancholic inducing low spirit
+ - e.g. often overdubed on some background sound with detectable source
+ - e.g. often or everytime induce nervous tension/strain
+ - e.g. often or everytime accompanies hostile behaviour of the Group
+- somehow gained access to the victim memory 
+ - w/o the victim's aware
+ - even from child-age which no one know or rembember
