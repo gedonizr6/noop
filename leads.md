@@ -9,4 +9,9 @@
 - euro vision 2024/2025
  - someone said 2025 has Liza in dance
 - Snowden may had similar expirence
-
+ - saw him at hall dors
+- telegram
+- 1bet
+- the Group maight shifted the phases of two hemispheres in my brain
+ - also they may translate different audio signals to left/right hemispheres
+ - this maight leads to 

@@ -21,3 +21,4 @@
 - somehow gained access to the victim memory 
  - w/o the victim's aware
  - even from child-age which no one know or rembember
+- posible turning on/off left/right brai seprately
