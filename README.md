@@ -1,7 +1,11 @@
-Hello. I live in Kiev having Russian citizenship.
-And some group linked to Ukrainian government trying to control me at least from the start of the war.
+# There are described real events
+## In the case of my death use these documents to punish those responsible 
+sorry for my English. I will correct it gradually.
+
+I live in Ukraine for 15+ years. Also I have Russian citizenship.
+Some group linked to Ukrainian government trying to control me at least from the start of the Russo-Ukrainian war.
 They know every episode of my life from the birth - including personal nobody else know
-Therefore I presume they use some 
+Therefore I presume they use some psychological technique as well as top-level technical and administrative resources.
 
 
 Some group is systematically harassing me for several years
