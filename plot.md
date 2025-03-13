@@ -22,3 +22,19 @@
    - VR physical activities
  - desocialize
   - make you feeling and looking mad
+ - e.g.
+  - someone -ex-boyfriend
+ 
+
+# Preparing to some adult show/contest/performace
+- where
+ - sex club
+ - private apt/house
+ - theatre
+ - eurovision
+ - tv show
+ - audio show
+ - home
+- how
+ - mastrubation contest
+ - public non-stop sex performance on 
