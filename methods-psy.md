@@ -27,3 +27,8 @@
  - the ratio of true/lie about this importance is unknown for now
  - e.g. telling that something interesting may be at your storages and leading you to the information about undeleting files may make difficult to use ant storage for writeing.
   - even new because they may tell that new storages was special  for you and you found that they are not empty
+- according to the Group they almost always translate to the victim some audio.
+ - this audio have two channel L and R which are different
+  - each ear hear own isolated channel
+  - it's not percived by consciousess 
+   - but subconsciousness understand it

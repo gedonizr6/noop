@@ -43,3 +43,14 @@
    - talanted
    - wonderchildrens/indigos
 
+# Soron ask girls to start using the victim's drugsw
+- July/Cate get pregnant (the victim's isnt' a father)
+- Now Soron want to do somethig with these kids(left them)
+-- He want that the victim take them as own
+--- So he planned this game
+
+# Take the victim's money and assets
+
+
+
+

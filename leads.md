@@ -15,3 +15,4 @@
 - the Group maight shifted the phases of two hemispheres in my brain
  - also they may translate different audio signals to left/right hemispheres
  - this maight leads to 
+- https://medium.com/@LifeAtVista_blog/developing-marketing-skills-in-non-tech-it-fields-894ac680de78

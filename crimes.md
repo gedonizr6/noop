@@ -1,12 +1,18 @@
 - Abuse of authority
 - Suppress the willpower, creativity, initiative
- - by beeig ahaed of them
+ - by constantly beeig ahaed of them
   - e.g. predicting the victim's thoughts/actions
  - by taking all the credits for them
   - "finally"
   - "that was my idea" 
 - pornography production and distribution
- - computer generated for sure
+ - computer generated or modified for sure
+  - versions
+   - shoting real videos and ai-modifying model faces and/or other body parts
+   - ai-modifying  purhased or pirated videos so that models seems familiar
+ - proof
+  - many websites have adult movies with familiar and/or post-ussr models and/or backgrounds
+   - seen someone from marketing DP
 - Sleep deprivation
   - itentional & continuous
 - Incitement to
@@ -19,6 +25,12 @@
   - watch or do sexual activity with childs
   - suicide
     - 3 failed attempts
+  - harm yourself
+   - cases
+    - provoking to exit/enter through the window
+     - incl. with affective state
+     - 4 cases with success rembembered
+      - many more w/o success
 - concealed chemical and psychological castration
 - systematic friegtening
 - using mind-reading techniques w/o consent
@@ -84,4 +96,5 @@
       - by guests(girls)
 - breaking and entering the home
 - stealing items in the home
-- attempt to make one clinicaly insane
+- attempt to make the victim clinicaly insane
+- placing implants to person without his knowledge
