@@ -98,3 +98,12 @@
 - stealing items in the home
 - attempt to make the victim clinicaly insane
 - placing implants to person without his knowledge
+- cause erectile dysfunction
+ - by actvating headache in the procees of getting erection
+  - just before full erection
+ - verbally
+  - laugh
+  - critique
+  - urge to achieve something dstracting in the process 
+  - interrupt
+

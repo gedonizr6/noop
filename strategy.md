@@ -5,4 +5,4 @@
  - memory (re-)writing
 - desociallize
  - e.g. to overplace all the blames to the victim
-- 
+- creating and multiplying the victim's doubts
