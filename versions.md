@@ -22,7 +22,7 @@
     - relatives
     - coworkers
     - politicans
-    - govrnooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooonnn
+    - government
 # you accidentely envolved into some game in real life for rich ppl
 # you live in conspiracy house and someone want you to leave
   - some rich ppl from RUS lived here and
@@ -51,6 +51,6 @@
 
 # Take the victim's money and assets
 
-
+# Human-traffic/dating service
 
 

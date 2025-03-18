@@ -4,6 +4,7 @@
    - proof: sometimed when on the start of masturbation the penis became even smaller then without stimulation
  - possible the victim should take some drug to enable this method
   - possible the Group add this drug in secret sellig drugs or food
+ - the feeling of elevation or falling down or sideway
  - change brain's states
   - e.g.
    - intellect
@@ -13,4 +14,16 @@
    - sexual arousal
    - anxious
    - shyness
-   - inducing trans or similar hypno-states 			
+   - inducing trans or similar hypno-states
+- control autonomic nervous system
+ - muscles
+  - interestial
+  - face muscles
+   - to disguise yourself or other
+- projecting "virtual" screen to the victim's vision
+ - the image on the screen looks like common video footage
+  - like virtual screen in V
+ - probably the techology may display anythin like in AR
+  - in my case the image was quite similar to inverted black/white
+   - the group hinted that quality may be higher in person able to visual imagening
+ 
