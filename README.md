@@ -12,16 +12,16 @@ They somehow know every episode of my life from the birth - including personal n
 They use some psychological techniques as well as top-level technical and administrative and/or social-engeneering resources. I didn't imagine before that someone could even have such abilities at once. Some of them I thought would possible in the far future only.
 
 
-They(the Group) systematically harassing me for several years
-i didn't give my consents to participate in any trials/therapy/game/show/etc
-i think they trying to make mr mad or make me believe in that
-they can directly interfere with my body from the distace
-They revealed themselves ~feb 2024. They almost never quiet.
-They stands out by:
-- cyber security dep with hi-end tech and skills
-- voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills
-- sex-workers(escort)
-- doppelganger (incl. celebrities/politican etc)
+- They(the Group) systematically harassing me for several years
+- i didn't give my consents to participate in any trials/therapy/game/show/etc
+- i think they trying to make mr mad or make me believe in that
+- they can directly interfere with my body from the distace
+- They revealed themselves ~feb 2024. They almost never quiet.
+- They stands out by:
+ - cyber security dep with hi-end tech and skills
+ - voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills
+ - sex-workers(escort)
+ - doppelganger (incl. celebrities/politican etc)
 - **actors/agents/cotrolled persons/part-time staff** playing 
   - police officers
   - escort woman
