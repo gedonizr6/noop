@@ -1,6 +1,7 @@
-# There are described real events
+# These are real events
 ## In the case of my death use these documents to punish those responsible 
-sorry for my English. I will correct it gradually.
+>[!NOTE]
+>Sorry for my English and unstructured narration. It's a draft. I will correct it gradually.
 
 I live in Ukraine for 15+ years. Also I have Russian citizenship.
 Some group linked to Ukrainian government trying to control me at least from the start of the Russo-Ukrainian war.
