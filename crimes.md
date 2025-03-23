@@ -1,12 +1,61 @@
-- harm to health by regular supressing symptoms
+- Abuse of authority
+- Suppress the willpower, creativity, initiative
+ - by constantly beeig ahaed of them
+  - e.g. predicting the victim's thoughts/actions
+ - by taking all the credits for them
+  - "finally"
+  - "that was my idea" 
+- pornography production and distribution
+ - computer generated or modified for sure
+  - versions
+   - shoting real videos and ai-modifying model faces and/or other body parts
+   - ai-modifying  purhased or pirated videos so that models seems familiar
+ - proof
+  - many websites have adult movies with familiar and/or post-ussr models and/or backgrounds
+   - seen someone from marketing DP
+- Sleep deprivation
+  - itentional & continuous
+- Incitement to
+  - drug distribution
+  - give someont drugs without their notice
+  - harm or kill someone
+  - steal
+  - squatting
+  - rape someone
+  - watch or do sexual activity with childs
+  - suicide
+    - 3 failed attempts
+  - harm yourself
+   - cases
+    - provoking to exit/enter through the window
+     - incl. with affective state
+     - 4 cases with success rembembered
+      - many more w/o success
+- concealed chemical and psychological castration
+- systematic friegtening
+- using mind-reading techniques w/o consent
+- privacy violance
+- harrassment
+- bullying
+- Illigal Procuring(sex workers)
+- Illigal drug distribution
+- harm to personal life
+- harm to sexual life
+- censorship 
+- Provoking to buy and do drugs
+- wiretapping
+- device hacking
+- forced conceald therapy
+- illigal therapy methods
+- Spying / Stalking
+- regularly supressing symptoms that may harm to health
   - prob: high
   - symptoms:
     - body temp
     - pressure
     - pain
-    -
-- develop the habbit to ignore dangerous health signals
-  - signals:
+- develop the habbit to ignore potentially dangerous symptoms
+  - examples:
     - pain in hearth
     - heartburn
     - headache
@@ -16,6 +65,7 @@
     - dizzenes
     - lowering presure
 - provoking affective state
+  - aggression
 - systematically sabotage almost any actions
 - harm self-esteem
   - by mockering on the victim
@@ -30,7 +80,7 @@
   - what
     - brome
     - opioides
-    - "female" hormons
+    - "female" hormones
     - testosterone
     - papaverine
     - dimedrol
@@ -52,3 +102,13 @@
 - use banned therapy methods
   - coding
   - comversion therapy
+- attempt to make the victim clinicaly insane
+- placing implants to person without his knowledge
+- cause erectile dysfunction
+ - by actvating headache in the procees of getting erection
+  - just before full erection
+ - verbally
+  - laugh
+  - critique
+  - urge to achieve something dstracting in the process 
+  - interrupt

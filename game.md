@@ -1,9 +1,10 @@
+# Main game
 - not known by general public
 - for
-  - rich ppl
-  - children of rich ppl
-  - talented
-    - considered as investement. so they need to pay sometimes after the play
+ - rich ppl
+ - children of rich ppl
+ - talented
+  - considered as investement. so they need to pay sometimes after the play
 - rules
   - the Group may arrange something you believed before
     - notes: the Group uses this to make you guilty of something

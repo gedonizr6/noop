@@ -1,3 +1,34 @@
+# Methods that affect mental states
+- emulate the work of subconscious
+ - including subconscious with some pathalogy
+  - e.g. mimic symptoms of schizophrenia
+ - control autonomic nervous system
+  - incl. states(body/mind) and feelings
+ - generating ideas, thoughts, phrases
 - changing context of something to change how percieve it in general
   - if you allow some action from one group of people then you should do that for any groups.
-    - e.g. if you would forgieve relatives for mindful S  +participation of this game for you - then this game is ok and you should be thankful
+    - e.g. if you would forgieve relatives for mindful intervention of this game for you - then this game is ok and you should be thankful
+- "fork"
+  - form the circumstanes in such a way that victim believe he has only one possible way
+  - often the victim feels like that was he who choose this way
+- playing background sounds
+ - e.g. often music
+ - e.g. ambient
+ - e.g. often heavy and melancholic inducing low spirit
+ - e.g. often overdubed on some background sound with detectable source
+ - e.g. often or everytime induce nervous tension/strain
+ - e.g. often or everytime accompanies hostile behaviour of the Group
+- somehow gained access to the victim memory 
+ - w/o the victim's aware
+ - even from child-age which no one know or rembember
+- posible turning on/off left/right brai seprately
+- limiting posibilities and resources by telling of their importance
+ - the importance is often hidden and difficult to check
+ - the ratio of true/lie about this importance is unknown for now
+ - e.g. telling that something interesting may be at your storages and leading you to the information about undeleting files may make difficult to use ant storage for writeing.
+  - even new because they may tell that new storages was special  for you and you found that they are not empty
+- according to the Group they almost always translate to the victim some audio.
+ - this audio have two channel L and R which are different
+  - each ear hear own isolated channel
+  - it's not percived by consciousess 
+   - but subconsciousness understand it

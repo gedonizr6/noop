@@ -1,0 +1,18 @@
+- loginova
+- batueva
+- dunina
+- vadika daughter
+- posledniy bal
+  - saw photo liza+drogolov2
+- posledniy poceluy
+- ussr action movi's actor playing main hero is yonkin's father
+- euro vision 2024/2025
+ - someone said 2025 has Liza in dance
+- Snowden may had similar expirence
+ - saw him at hall dors
+- telegram
+- 1bet
+- the Group maight shifted the phases of two hemispheres in my brain
+ - also they may translate different audio signals to left/right hemispheres
+ - this maight leads to 
+- https://medium.com/@LifeAtVista_blog/developing-marketing-skills-in-non-tech-it-fields-894ac680de78

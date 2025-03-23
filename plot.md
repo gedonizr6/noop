@@ -1,0 +1,40 @@
+# secret governmental project "Sex Games"
+- 400 socially unprotected people
+  - socially unprotected people	
+    - sex workers
+    - drug addict
+    - HIV-positive
+  - acquire "Persoal assistents" which may:
+    - mimic work of subconscious of person with schizophrenia
+      - especially they speak with you like you have nultiple personalities
+
+    
+# someone want to destroy your life
+ - at first trying to make the victim a pedofile
+  - then transexual
+  - then cuckold
+ - code against the victim's every activities
+  - e.g.
+   - everything that gives a pleasure
+   - reading or getting information
+   - working
+   - thinking
+   - VR physical activities
+ - desocialize
+  - make you feeling and looking mad
+ - e.g.
+  - someone -ex-boyfriend
+ 
+
+# Preparing to some adult show/contest/performace
+- where
+ - sex club
+ - private apt/house
+ - theatre
+ - eurovision
+ - tv show
+ - audio show
+ - home
+- how
+ - mastrubation contest
+ - public non-stop sex performance on 

@@ -1,0 +1,17 @@
+- sometimes you wake up and somethig happend:
+ - e.g.
+  - yo hair is  dressed
+   - often
+  - something arranged in strange way
+   - you dont't remember you even touch these things
+   - they hint on something
+    - some action you need to do
+     - as the goup saying
+ - doors and windows are closed
+ - often you have numbness in your hands
+- versions
+ - the group induce you some kind of deep sleep and the group have unknwn methhod to enter the apt
+ - it was my action 
+  - i act ike doll without coincence and remembering
+  - t have another personality who has own meory
+ - the group cleans my memoty 

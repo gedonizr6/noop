@@ -1,3 +1,9 @@
+- using AI for:
+ - generating adult videos with replaced:
+  - environent
+  - actor faces and body features
+  - sounds producing by actors
+  - background  music
 - turn on/off internet
 - slow down devices
   - or completely freezing

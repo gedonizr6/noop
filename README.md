@@ -1,10 +1,36 @@
-### Some group is systematically harassing me for several years
-### i didn't give my consents to participate in any trials/therapy/game/show/etc
-### i think some group of people trying to make me believe that im mad.
-### i hear voices constantly after ~feb 2024. they almost never quiet.
-Possibly they use hired actors and somehow transmit audio data to my mind
+# These are real events
+## In the case of my death use these documents to punish those responsible 
+>[!NOTE]
+>Sorry for my English and unstructured narration. It's a draft. I will correct it gradually.
 
-### their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it orgabunized and controlled by ## some third-party group(the band)
+>[!NOTE]
+>I started to use "you" or "the victim" instead of me. Because I assume that I'm not the only one.
+
+I live in Ukraine for 15+ years. Also I have Russian citizenship.
+Some group trying to control me against my will at least from the start of the Russo-Ukrainian war.
+They somehow know every episode of my life from the birth - including personal nobody else know. And they want make everyone(including me) believe that I'm mad.
+They use some psychological techniques as well as top-level technical and administrative and/or social-engeneering resources. I didn't imagine before that someone could even have such abilities at once. Some of them I thought would possible in the far future only.
+
+
+- They(the Group) systematically harassing me for several years
+- i didn't give my consents to participate in any trials/therapy/game/show/etc
+- i think they trying to make mr mad or make me believe in that
+- they can directly interfere with my body from the distace
+- They revealed themselves ~feb 2024. They almost never quiet.
+- They stands out by:
+ - cyber security dep with hi-end tech and skills
+ - voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills
+ - sex-workers(escort)
+ - doppelganger (incl. celebrities/politican etc)
+- **actors/agents/cotrolled persons/part-time staff** playing 
+  - police officers
+  - escort woman
+  - ambulance crew
+  - ordinary people
+  - shop workers
+  - homeless
+
+### their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it organized and controlled by some third-party group
 Supposedly they are trying to discredit me - publicly or in front of some group of people
 They somehow controll people behaviour, making them act in the same odd maner with common goals. Possible methods:
 - open suggestion
@@ -15,7 +41,7 @@ They somehow controll people behaviour, making them act in the same odd maner wi
 - administrative resource
 - reward(for actors)
 
-## Possible Band crimes
+## The Group's possible crimes
 - atempt to harm your health(or kill you) consistently adjusting my habits, my body and events to increase my blood pressure and pulse
 - poising drugs, water and food
 ### human-traffic(organize prostitution)
