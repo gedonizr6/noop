@@ -5,7 +5,7 @@
     - pressure
     - pain
     -
-- develop the habbit to danger health signals
+- develop the habbit to ignore dangerous health signals
   - signals:
     - pain in hearth
     - heartburn
@@ -45,4 +45,10 @@
       - by neighbors
       - by guests(girls)
 - breaking and entering the home
-- steaking items in the home
+- stealing items in the home
+- change the victim's behaviour concealed and against his will and interests
+- isolate socially
+- compulsory concealed therapies
+- use banned therapy methods
+  - coding
+  - comversion therapy

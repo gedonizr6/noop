@@ -5,9 +5,9 @@
 - change battery charge level
   - to 0 with shutdown
   - to 100% without chargeing
-- somehow controll devices without any turned on connections
+- somehow controll/ddos devices without any active connections
   - pc
     - possible has hidden bluetooth/wifi/etc
     - possible controlled over electrical power line by changeing frequency and/or modulation
       - which can read by common saund interface(possible)
-    -
+    - possible by directed narrow EM radiation

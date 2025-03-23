@@ -1,3 +1,10 @@
+- types of sound/voices
+  - quiet but recognizable
+  - more quiet and not-rocognozable unambigously
+    - possible they used for provoking hallucination by victim
+      - so that he can choose first/self association
+          - also the audio may be pre-transmited to the victim's mind
+            - by. eg. not-hearable by concious but hearable by subconcious
 - sounds heared like they are running from the some point in space
  - e.g. voices sounds like they runs from the invisible person. or screams from some far height(when in the city).
  - the heared better when you came closer
@@ -9,4 +16,4 @@
 - the victim may expierences tinnitus
  - sometimes or always and sometimes more noticetable
  - seems like the focusing on  this ringing sound leads to increasing the volume of this sound
-   - 
+   -
