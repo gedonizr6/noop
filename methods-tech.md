@@ -17,3 +17,6 @@
     - possible controlled over electrical power line by changeing frequency and/or modulation
       - which can read by common saund interface(possible)
     - possible by directed narrow EM radiation
+- form music playlist to manipulate somehow
+ - like it's the result of service(youtube music, etc)
+ - use some techniques for suggesting by theese playlists
