@@ -32,3 +32,12 @@
   - each ear hear own isolated channel
   - it's not percived by consciousess 
    - but subconsciousness understand it
+- using the verbalized text from audio/video contents the victim may hear
+ - from
+  - own devices' music playlists(youtube music, etc)
+  - shorts or music started by people the victim may met
+  - music/audio in public places(ATB supermarket, etc)
+ - inducing the feeling that's the lyric relates to me or current situation  
+ - it often enforces stress, anxiety and fears
+  - but never weakens them nor does it do any good
+
