@@ -13,33 +13,33 @@ They use some psychological techniques as well as top-level technical and admini
 
 
 - They(the Group) systematically harassing me for several years
-- i didn't give my consents to participate in any trials/therapy/game/show/etc
-- i think they trying to make mr mad or make me believe in that
-- they can directly interfere with my body from the distace
+- I didn't give my consents to participate in any trials/therapy/game/show/etc
+- I think they trying to make mr mad or make me believe in that
+- They can directly interfere with the states of my body remotely
 - They revealed themselves ~feb 2024. They almost never quiet.
 - They stands out by:
- - cyber security dep with hi-end tech and skills
- - voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills
- - sex-workers(escort)
- - doppelganger (incl. celebrities/politican etc)
-- **actors/agents/cotrolled persons/part-time staff** playing 
+ - cyber security team with hi-end tech and skills
+ - voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills 
+ - **actors/agents/controlled persons/part-time staff** acting as
+  - sex-workers(escort)
+  - celebrities and/or their doppelganger
   - police officers
-  - escort woman
   - ambulance crew
-  - ordinary people
   - shop workers
-  - homeless
-
-### their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it organized and controlled by some third-party group
+  - homeless  
+  - ordinary people with unusuall common behavioral patterns that's unexplainable by chance
+  
+### Their behaviour and sequence of events around me seems too organized and complicated to be implemented by one person. Therefore i suggest it organized and controlled by some third-party group outside my mind.
 Supposedly they are trying to discredit me - publicly or in front of some group of people
 They somehow controll people behaviour, making them act in the same odd maner with common goals. Possible methods:
-- open suggestion
-- hidden suggestion
+- social-engeneering
+ - open suggestion
+ - hidden suggestion
   - using special devices
   - using psychology skills
 - bribes(police, personal contacts, escort)
 - administrative resource
-- reward(for actors)
+- reward(e.g. for actors)
 
 ## The Group's possible crimes
 - atempt to harm your health(or kill you) consistently adjusting my habits, my body and events to increase my blood pressure and pulse
@@ -68,10 +68,11 @@ items from apt.
 
 
 ## stages
-Band told that their actions began:
+The Group told that their actions began:
 - from the birth(like im in vr or they are born with me)
 - when i moved to Kyiv (like they are my employer or some organization)
-- from my firnnast meeting with DN
+- from my first meeting with DN
+- *from the start of the remote work due to the first COVID outbreak*
 - from my first meeting with GK
 - from my second meeting with GK(after DN moved)
   - the most strangiest dates started from here as i remember
@@ -87,9 +88,18 @@ This paranoia could heve been:
 From there the Griup started to dialogs with me (there's a chance that i forget some dialgs before this stage)
 i have sparse memories about start of this period, like some days was completely or partialy erased(the Group said that they did that and i feel this is true, but possible they just covered my forgetfulless)
 Some of episoeds i rememberd
+- some hard-to-remember episodes from the first revealed stages where there was a host of some show and i should answer quiz, stop numbers like in auctions
+ - they often repeats that i'm "1000+"-th reincarnation hinting that im in VR and already went through those "games" many-many times before
 - teaching me tecniques of speaking and hearing the Group
+- Saw cars from the balcony. All of them was driven like in cartoon
+ - they stoped using this effect after several attempts
+- acting as mouse when my replicas gradually transformed to "pee-pee" sounds imitating mouse squeaks
+- at Nata's home when tried to escape from the Group(who, as I believed at the time, and as they behaved, were criminals trying to lure me out of the house in order to take some of my property)
+ - they persuaded me to remove my dental implant and gave it to them
+- at Nata's home when they persuaded me to do sex with she ignoring her consent
+ - ended in nothing after several attempts and the refusals received 
 - the trial with me as a rapist of two 14yo girls
--  i was in coma
+- i was in coma
 #### DP with some games
 ##### episode at pc with audacity and headphones
 they induced me Arrogant state. Probably for teaching/testing/content.
