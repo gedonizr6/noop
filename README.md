@@ -1,5 +1,5 @@
 # These are real events
-## In the case of my death use these documents to punish those responsible 
+## In case of my death or loss of sanity - please use these documents to bring the responsible to justice.
 >[!NOTE]
 >Sorry for my English and unstructured narration. It's a draft. I will correct it gradually.
 
