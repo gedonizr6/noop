@@ -1,3 +1,9 @@
+- stimulate the forgetting of recent events
+ - and use this for repeating of similar events
+ - likely use context switcvhing
+   - often continiously
+     - probably to blur and to owerflow the memory
+ - probably use long sessions of translating some noise to the memory which is unnoticable by conscience
 - dynamically change body states
  - e.g.
   - blood pressure and blood distribution over the body organs
