@@ -40,4 +40,11 @@
  - inducing the feeling that's the lyric relates to me or current situation  
  - it often enforces stress, anxiety and fears
   - but never weakens them nor does it do any good
-
+- provokes to stop doing things you think right at the moment
+ - by suggesting that the victim is participating in some show and the audience wouldn't having fan watching that
+ - turning on feeling of intence discomfort
+ - using repetitive actions by a nearby person that could be interpreted as criticism
+  - e.g. every person's phrases may start to have mocking intonation.
+   - you never hear what's the persons say exactly but
+    - the mocking intonaions are obvious
+    - the phrases triggered by the victim's actions
