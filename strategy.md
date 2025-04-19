@@ -6,3 +6,4 @@
 - desociallize
  - e.g. to overplace all the blames to the victim
 - creating and multiplying the victim's doubts
+- deminish the victim's will

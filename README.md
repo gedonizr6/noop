@@ -9,14 +9,20 @@
 I live in Ukraine for 15+ years. Also I have Russian citizenship.
 Some group trying to control me against my will at least from the start of the Russo-Ukrainian war.
 They somehow know every episode of my life from the birth - including personal nobody else know. And they want make everyone(including me) believe that I'm mad.
-They use some psychological techniques as well as top-level technical and administrative and/or social-engeneering resources. I didn't imagine before that someone could even have such abilities at once. Some of them I thought would possible in the far future only.
+They use some psychological techniques as well as top-level technical and administrative and/or social-engeneering resources. I didn't imagine before that someone could even have such abilities at once. Some of them I thought would be possible in the far future only.
 
 
-- They(the Group) systematically harassing me for several years
-- I didn't give my consents to participate in any trials/therapy/game/show/etc
-- I think they trying to make mr mad or make me believe in that
-- They can directly interfere with the states of my body remotely
-- They revealed themselves ~feb 2024. They almost never quiet.
+
+# Facts
+- The Group is systematically manipulating me for several years
+ - They revealed themselves ~feb 2024
+- They said that I'm in some trial/therapy/game/show
+ - But *I didn't give any consents* to participate in of them
+ - And *I asked to stop it* the first time I could it hypothesized
+- They can directly interfere with the states of my body remotely 
+ - As well as track me and my body's readings
+- Their voices heared as low volume sound with percieved direction 
+ - but not yet found source
 - They stands out by:
  - cyber security team with hi-end tech and skills
  - voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills 
@@ -40,32 +46,6 @@ They somehow controll people behaviour, making them act in the same odd maner wi
 - bribes(police, personal contacts, escort)
 - administrative resource
 - reward(e.g. for actors)
-
-## The Group's possible crimes
-- atempt to harm your health(or kill you) consistently adjusting my habits, my body and events to increase my blood pressure and pulse
-- poising drugs, water and food
-### human-traffic(organize prostitution)
-### corruption(police dep s)
-### privacy violation
-#### hacking and controlling devices(pc, phones, notebooks, quest 2, etc) and soft
-#### wiretapping
-###### phone calls
-possible by sim dupl and/or own transmitter near my home
-###### telegram
-by hacking app or by men-in-the-middle
-### forced therapy
-### use of restricted therapy methods
-### stealing
-items from apt.
-## murder attempt
-## multiple attempts to coerce for:
-### human-traffic(to sell your girlfreiends)
-### distributing illigal drugs
-### watch adult videos and do sex(and rape) with
-#### man
-#### transman
-#### underages
-
 
 ## stages
 The Group told that their actions began:

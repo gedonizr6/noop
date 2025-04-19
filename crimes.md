@@ -1,4 +1,5 @@
 - Abuse of authority
+- human-traffic(organize prostitution)
 - Suppress the willpower, creativity, initiative
  - by constantly beeig ahaed of them
   - e.g. predicting the victim's thoughts/actions
@@ -18,7 +19,8 @@
 - Incitement to
   - drug distribution
   - give someont drugs without their notice
-  - harm or kill someone
+  - murder someone
+  - harm someone  
   - steal
   - squatting
   - rape someone
@@ -31,6 +33,10 @@
      - incl. with affective state
      - 4 cases with success rembembered
       - many more w/o success
+  - organize prostitution
+   - by selling the victim's wife, daugthers and/or girlfriends 
+  - change sexual orientation and/or gender
+   - *incl underage* 
 - concealed chemical and psychological castration
 - systematic friegtening
 - using mind-reading techniques w/o consent
@@ -76,6 +82,7 @@
     - you should do it with your wife.
       - someony(Drogolov) done that, and she was happy. you should done it
   - when they saw that i didn't do any crimes - they starts to call me weak.
+- attempt to murder the victim
 - intentional poisoning
   - what
     - brome
@@ -112,3 +119,15 @@
   - critique
   - urge to achieve something dstracting in the process 
   - interrupt
+- atempt to harm the victims health(or kill)
+  - by consistently adjusting the victim's 
+   - habits 
+   - body states   
+   - environment
+    - events
+    - people attitudes
+
+
+
+
+
