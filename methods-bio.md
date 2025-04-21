@@ -32,4 +32,9 @@
  - probably the techology may display anythin like in AR
   - in my case the image was quite similar to inverted black/white
    - the group hinted that quality may be higher in person able to visual imagening
+- somehow interfere with language generation function of victim'd brain
+ - e.g. inject own phrases
+ - how(and/or):
+  - unhearable real-time prompting
+  - prerecorded to brain memory
  

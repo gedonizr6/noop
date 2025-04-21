@@ -1,0 +1,5 @@
+- lure out from home
+- forcefuly attempt to 
+ - make adult video with the victim
+ - put a shame on the victim by showing him a much better person having sex with someone you have enormous sabotaged fail with
+  - after more then year without success with anyone actually 

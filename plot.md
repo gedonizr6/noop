@@ -1,3 +1,7 @@
+# Someone wants to make you happy but something goes wrong
+
+# Someone wants to make you a husbund/cuckold
+
 # secret governmental project "Sex Games"
 - 400 socially unprotected people
   - socially unprotected people	
