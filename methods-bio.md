@@ -37,4 +37,7 @@
  - how(and/or):
   - unhearable real-time prompting
   - prerecorded to brain memory
+ - this probably leads to lowering the victim's brain initative 
+  - to the point of zombie state
+
  
