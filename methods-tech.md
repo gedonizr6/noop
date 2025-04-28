@@ -1,3 +1,20 @@
+- lockpicking
+- installing and using network of hidden cams
+  - possibly, communicating/powering using wet insulators
+    - any building/interior material
+  - pros:
+    - the group knows what the victim is doing
+    - the agents of the group consistently increased humidity of the apt by
+      - spill liquids
+      - urinating
+      - forcing endless laundry by
+        - urinating on sheets/matress/textile
+        - put on the victim's clothes, dirty them and change them for new ones every few hours
+        - provoke the washing machine to break down during the program, forcing it to start over
+        - provoke fear and guilt because of the noise of the washing machine
+        - possibly making the washing machine generating
+          - more louder noise
+          - adding artificial/controlled noise
 - using AI for:
  - generating adult videos with replaced:
   - environent
@@ -17,6 +34,24 @@
     - possible controlled over electrical power line by changeing frequency and/or modulation
       - which can read by common saund interface(possible)
     - possible by directed narrow EM radiation
-- form music playlist to manipulate somehow
- - like it's the result of service(youtube music, etc)
- - use some techniques for suggesting by theese playlists
+  - smart phones
+  - measurement devices
+    - multimeter
+      - was observed sporadic values coinciding with direct confirmation from the group
+    - flamable gas detector
+      - was observed sporadic values coinciding with direct confirmation from the group
+- manipulating the content of the website
+  - looks like a website's own personalisaion mechanism
+    - but this personalization is global in nature and consistent with the common narrative of the Group on almost all websites that are not connected to each other
+      - possibly men-in-the-middle attack
+- music playlist to manipulate somehow
+  - like it's the result of service(youtube music, etc)
+  - use some techniques for suggesting by theese playlists
+- Generate fake certificate of any domain and make them trusted on victim's devices
+  - possibly, by changing the root certificates on the victim's devices
+  - possibly, by having the private keys of the CA
+    - stealing
+    - brutforced
+      - botnet
+      - quantum computers
+    - gained by authority(gov/military/security agencies)
