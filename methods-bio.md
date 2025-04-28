@@ -1,43 +1,52 @@
-- stimulate the forgetting of recent events
- - and use this for repeating of similar events
- - likely use context switcvhing
-   - often continiously
-     - probably to blur and to owerflow the memory
- - probably use long sessions of translating some noise to the memory which is unnoticable by conscience
+  - stimulate the forgetting of recent events
+  - and use this for repeating of similar events
+  - likely use context switcvhing
+    - often continiously
+      - probably to blur and to owerflow the memory
+  - probably use long sessions of translating some noise to the memory which is unnoticable by conscience
 - dynamically change body states
- - e.g.
-  - blood pressure and blood distribution over the body organs
-   - proof: sometimed when on the start of masturbation the penis became even smaller then without stimulation
- - possible the victim should take some drug to enable this method
-  - possible the Group add this drug in secret sellig drugs or food
- - the feeling of elevation or falling down or sideway
- - change brain's states
   - e.g.
-   - intellect
-   - fear/bravery
-   - paranoia
-   - speakability
-   - sexual arousal
-   - anxious
-   - shyness
-   - inducing trans or similar hypno-states
+    - blood pressure and blood distribution over the body organs
+    - proof: sometimed when on the start of masturbation the penis became even smaller then without stimulation
+  - possible the victim should take some drug to enable this method
+    - possible the Group add this drug in secret sellig drugs or food
+  - the feeling of elevation or falling down or sideway
+  - change brain's states
+    - e.g.
+      - intellect
+      - fear/bravery
+      - paranoia
+      - speakability
+      - sexual arousal
+      - anxious
+      - shyness
+      - inducing trans or similar hypno-states
 - control autonomic nervous system
- - muscles
-  - interestial
-  - face muscles
-   - to disguise yourself or other
+  - muscles
+    - interestial
+    - face muscles
+      - to disguise yourself or other
 - projecting "virtual" screen to the victim's vision
- - the image on the screen looks like common video footage
-  - like virtual screen in V
- - probably the techology may display anythin like in AR
-  - in my case the image was quite similar to inverted black/white
-   - the group hinted that quality may be higher in person able to visual imagening
+  - the image on the screen looks like common video footage
+    - like virtual screen in V
+  - probably the techology may display anythin like in AR
+    - in my case the image was quite similar to inverted black/white
+      - the group hinted that quality may be higher in person able to visual imagening
 - somehow interfere with language generation function of victim'd brain
- - e.g. inject own phrases
- - how(and/or):
-  - unhearable real-time prompting
-  - prerecorded to brain memory
- - this probably leads to lowering the victim's brain initative 
-  - to the point of zombie state
-
- 
+  - e.g. inject own phrases
+  - how(and/or):
+    - unhearable real-time prompting
+    - prerecorded to brain memory
+  - this probably leads to lowering the victim's brain initative
+    - to the point of zombie state
+- control nosal congestion
+  - as to
+    - make the victim's voiced nosal(less pleasant)
+    - stimulating the victim to cintinuously interrupt and loose opportunity
+      - e.g. while having sex
+    - stimulate sniffling while
+      - talking
+      - moving
+      - having sex
+- intentionally infect with some desease
+  - e.g. intestinal worms

@@ -4,7 +4,7 @@
 
 # secret governmental project "Sex Games"
 - 400 socially unprotected people
-  - socially unprotected people	
+  - socially unprotected people
     - sex workers
     - drug addict
     - HIV-positive
@@ -12,7 +12,7 @@
     - mimic work of subconscious of person with schizophrenia
       - especially they speak with you like you have nultiple personalities
 
-    
+
 # someone want to destroy your life
  - at first trying to make the victim a pedofile
   - then transexual
@@ -28,7 +28,7 @@
   - make you feeling and looking mad
  - e.g.
   - someone -ex-boyfriend
- 
+
 
 # Preparing to some adult show/contest/performace
 - where
@@ -41,4 +41,4 @@
  - home
 - how
  - mastrubation contest
- - public non-stop sex performance on 
+ - public non-stop sex performance on

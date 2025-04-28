@@ -1,20 +1,20 @@
 - intentional communicating in such way that the victim is unable to achieve a certainty at anything
-- quite whispering 
-- saying in opposite direction of the victim 
+- quite whispering
+- saying in opposite direction of the victim
 - mixing with continious or short noises
 - e.g. throwing something on the floor
 - e.g. sound of air-conditioner
 - this leads to
 - amplyfying the victim's doubts and inducing new ones
-    - then the group trying to remove/lowering these doubts
-    - if succeess - the victim takes initative/esponsibility and do some actions
-    - then the group:
-        - sabotages the process
-        - sabotages outcomes
-        - sabotage percieving of the victim's own action 
-        - critique
-        - suggesting that sabotages was just a
-        - friendful joke
-        - provocation for learning purposes
+  - then the group trying to remove/lowering these doubts
+  - if succeess - the victim takes initative/esponsibility and do some actions
+  - then the group:
+    - sabotages the process
+    - sabotages outcomes
+    - sabotage percieving of the victim's own action
+    - critique
+    - suggesting that sabotages was just a
+    - friendful joke
+    - provocation for learning purposes
     - all that repeating constantly AND leads to lowering the initative of the victim
-    - meanwhile the victim's self-choosen actions also critisized and provocations to do suspicious questionable action continue
+  - meanwhile the victim's self-choosen actions also critisized and provocations to do suspicious questionable action continue

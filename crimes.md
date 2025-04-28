@@ -5,7 +5,7 @@
   - e.g. predicting the victim's thoughts/actions
  - by taking all the credits for them
   - "finally"
-  - "that was my idea" 
+  - "that was my idea"
 - pornography production and distribution
  - computer generated or modified for sure
   - versions
@@ -20,7 +20,7 @@
   - drug distribution
   - give someont drugs without their notice
   - murder someone
-  - harm someone  
+  - harm someone
   - steal
   - squatting
   - rape someone
@@ -34,9 +34,9 @@
      - 4 cases with success rembembered
       - many more w/o success
   - organize prostitution
-   - by selling the victim's wife, daugthers and/or girlfriends 
+   - by selling the victim's wife, daugthers and/or girlfriends
   - change sexual orientation and/or gender
-   - *incl underage* 
+   - *incl underage*
 - concealed chemical and psychological castration
 - systematic friegtening
 - using mind-reading techniques w/o consent
@@ -47,7 +47,7 @@
 - Illigal drug distribution
 - harm to personal life
 - harm to sexual life
-- censorship 
+- censorship
 - Provoking to buy and do drugs
 - wiretapping
 - device hacking
@@ -117,17 +117,13 @@
  - verbally
   - laugh
   - critique
-  - urge to achieve something dstracting in the process 
+  - urge to achieve something dstracting in the process
   - interrupt
 - atempt to harm the victims health(or kill)
-  - by consistently adjusting the victim's 
-   - habits 
-   - body states   
+  - by consistently adjusting the victim's
+   - habits
+   - body states
    - environment
     - events
     - people attitudes
-
-
-
-
-
+- discriminating by nationality

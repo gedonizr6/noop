@@ -19,22 +19,22 @@ They use some psychological techniques as well as top-level technical and admini
 - They said that I'm in some trial/therapy/game/show
  - But *I didn't give any consents* to participate in of them
  - And *I asked to stop it* the first time I could it hypothesized
-- They can directly interfere with the states of my body remotely 
+- They can directly interfere with the states of my body remotely
  - As well as track me and my body's readings
-- Their voices heared as low volume sound with percieved direction 
+- Their voices heared as low volume sound with percieved direction
  - but not yet found source
 - They stands out by:
  - cyber security team with hi-end tech and skills
- - voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills 
+ - voice actors with fast role/context-switching, concierge and psychology(incl. hypnosis) skills
  - **actors/agents/controlled persons/part-time staff** acting as
   - sex-workers(escort)
   - celebrities and/or their doppelganger
   - police officers
   - ambulance crew
   - shop workers
-  - homeless  
+  - homeless
   - ordinary people with unusuall common behavioral patterns that's unexplainable by chance
-  
+
 ### Their behaviour and sequence of events around me seems too organized and complicated to be implemented by one person. Therefore i suggest it organized and controlled by some third-party group outside my mind.
 Supposedly they are trying to discredit me - publicly or in front of some group of people
 They somehow controll people behaviour, making them act in the same odd maner with common goals. Possible methods:
@@ -77,7 +77,7 @@ Some of episoeds i rememberd
 - at Nata's home when tried to escape from the Group(who, as I believed at the time, and as they behaved, were criminals trying to lure me out of the house in order to take some of my property)
  - they persuaded me to remove my dental implant and gave it to them
 - at Nata's home when they persuaded me to do sex with she ignoring her consent
- - ended in nothing after several attempts and the refusals received 
+ - ended in nothing after several attempts and the refusals received
 - the trial with me as a rapist of two 14yo girls
 - i was in coma
 #### DP with some games
@@ -204,7 +204,7 @@ Their behaviour changed dramatically starting from feb 2024. It became more absu
    - very vague
    - two-color
    - as they say the other people can visualize in better quality
- - the victim may see  
+ - the victim may see
 - comparsioning with another persons
   - they are almost always better
   - gradually worsening the examples

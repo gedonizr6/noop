@@ -8,3 +8,54 @@
 - creating and multiplying the victim's doubts
 - deminish the victim's will and initative
 - induce the feeling of extreme oldness to the victim
+- to blur sense of
+- organize erectile dysfunction of the victim
+ - using punitive combination therapy
+  - remotely control autonomous nervous system
+   - mood
+    - negative
+    - positive
+    - sleepy
+    - stimulated
+    - tired
+    - braved
+    - worried
+    - talkative
+    - silent
+    - humorous
+    - shy
+    - paranoided
+   - inducing phantom pain in multiple areas
+    - stomach(heartburn)
+    - heart/lungs
+    - head (headache)
+   - organize urge to defecate
+   - arousal level
+   - body/parts blood pressure
+   - vasoconstriction/vasodilation of erection related blood vessels
+   - erection related muscles states
+   - separately control the filling of corpora covernosa and 2 corpus spongiosum
+   - organizing the victim's time and opportunity wasting
+    - by organizing
+     - prolonged attempts to defecate
+     - inadequate/provocative/negative behaviour of the special-trained escort workers
+   - using special tecniques of sexual stimulation which are aimed to decrease an erection
+    - often it seems natural/like coincidence or just not noticed by the victim
+     - so the victim may take all the guilt to himself
+    - often just after the erection begins
+     - manipulating the victim to feel complete failure
+    - completely stoping the stimulation and rejecting to continue
+    - interrupt the victim's own attempts to getting erection(by masturbation)
+     - blocking the hand
+    - pushing-out moves by vaginal muscles
+    - limiting stimulation by
+     - relaxating the vaginal muscles
+     - weak grip while hand/oral stimulation
+     - limiting amplitude
+    - special moves that squeeze the blood out of penis
+     - by hand
+     - by vagina
+    - completely ignoring techniques aimed to helps an erection
+    - changing rythm every several seconds
+    - ignoring the victim's verbal feedback
+
