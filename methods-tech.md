@@ -1,4 +1,22 @@
-- lockpicking
+- use of steganography
+  - e.g. possibly tranmiting data to/from devices over powerlines
+  - interfering with brain
+    - by
+      - possibly pre-recorded associacion in brain memory tha may triggered by some events
+      - possibly avtivation of specific association by some trigger that is unnoticed by conscience
+    - expierenced as
+      - recognition of specific text in objects that slyghty resembles texts
+        - e.g. coffee grounds etc
+    - possibly using light
+      - to transmit data
+        - to the subconscience
+        - to/from devices
+      - evidences
+        - observed continuous changing of lamps brightness
+          - almost every days
+    - placing the objects in such order that trigger specific associations
+      - thoughts or states
+  - lockpicking
 - installing and using network of hidden cams
   - possibly, communicating/powering using wet insulators
     - any building/interior material
