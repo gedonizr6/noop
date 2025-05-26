@@ -14,5 +14,11 @@
 - 1bet
 - the Group maight shifted the phases of two hemispheres in my brain
  - also they may translate different audio signals to left/right hemispheres
- - this maight leads to 
+ - this maight leads to
 - https://medium.com/@LifeAtVista_blog/developing-marketing-skills-in-non-tech-it-fields-894ac680de78
+- Criminal minds Season 12 ep. 11. Surface tension
+  - the Group was claimed that this episod's plot has similarities with my case
+    - specifically the method of killing
+      - by consealed, slow but consistent harming many body systems for a long period of time
+        - followed by simultaneous failures of many systems
+          - followed by deadth
