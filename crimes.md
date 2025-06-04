@@ -127,3 +127,8 @@
     - events
     - people attitudes
 - discriminating by nationality
+- slander
+  - deliberately false govermental records
+    - e.g. police record about domestic violance
+- Persecution by nationality
+- Anti-drug persecution
