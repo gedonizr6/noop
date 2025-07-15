@@ -22,3 +22,5 @@
       - by consealed, slow but consistent harming many body systems for a long period of time
         - followed by simultaneous failures of many systems
           - followed by deadth
+- https://en.wikipedia.org/wiki/Tramadol#Discrepant_reports_on_natural_agency
+-

@@ -1,0 +1,2 @@
+- https://global.espreso.tv/moscow-russian-general-names-mind-blackout-and-chips-as-cause-of-terrorist-attack-in-moscow-region
+- https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000600150003-3.pdfЯЯ

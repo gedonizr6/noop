@@ -132,3 +132,8 @@
     - e.g. police record about domestic violance
 - Persecution by nationality
 - Anti-drug persecution
+- systematic torture by affecting severe pain for long period(hours)
+  - po
+  - possiblen by overconstracting muscles
+- mobbying/gang stalking
+- cyberstalking

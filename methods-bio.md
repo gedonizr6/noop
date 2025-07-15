@@ -50,3 +50,5 @@
       - having sex
 - intentionally infect with some desease
   - e.g. intestinal worms
+- possibly use worms for some tasks
+-  The main current visible goal of the group is to make the victiom - cuckold
