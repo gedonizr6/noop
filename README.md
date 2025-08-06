@@ -1,10 +1,10 @@
 # These are real events
 ## In case of my death or loss of sanity - please use these documents to bring the responsible to justice.
 >[!NOTE]
->Sorry for my English and unstructured narration. It's a draft. I will correct it gradually.
+>Sorry for my English and unstructured narration. It's a draft. I will correct it gradually. Also keep in mind that this text was written in the middle of events.
 
 >[!NOTE]
->I started to use "you" or "the victim" instead of me. Because I assume that I'm not the only one.
+>I started to use "you" or "the victim" instead of me. Because I assume that there are others.
 
 I live in Ukraine for 15+ years. Also I have Russian citizenship.
 Some group trying to control me against my will at least from the start of the Russo-Ukrainian war.
