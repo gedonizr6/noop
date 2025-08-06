@@ -1,5 +1,8 @@
 # These are real events
 ## In case of my death or loss of sanity - please use these documents to bring the responsible to justice.
+
+[[wikilinks]]
+
 >[!NOTE]
 >Sorry for my English and unstructured narration. It's a draft. I will correct it gradually. Also keep in mind that this text was written in the middle of events.
 
